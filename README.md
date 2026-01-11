@@ -48,6 +48,6 @@ LinkedIn: linkedin.com/in/katlego-raphael-mathabe-118336289
 
 Portfolio Website: www.voltedgetechsolutions.co.za
 
-Cell Phone Number: +27812160556
+Cell Phone Number: +27812160556 
 Email address: raphaelmathabe20@gmail.com & krmathabe@voltedgetechsolutions.co.za 
 
